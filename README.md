@@ -1,4 +1,4 @@
-👋 Hi, I’m @aemere2023
+👋 Hi, I’m Aemere
 👀 I’m interested in lifelong learning, technology, and exploring diverse subjects.
 🌱 I’m currently learning about the latest advancements in Information Technology and expanding my knowledge in various fields.
 💞️ I’m looking to collaborate on projects or initiatives that involve the intersection of technology and personal growth.
